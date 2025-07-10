@@ -20,4 +20,4 @@
 
 此外，平台默认启用无痕浏览模式，保障你的使用安全和隐私。点击下方任意入口，立即开启你的无码高清日本AV之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben1222222 ）</span> 
